@@ -1,1 +1,0 @@
-# Digitizing-Immunization-Cards-By-Taking-Their-Photograph
